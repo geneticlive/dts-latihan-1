@@ -1,1 +1,1 @@
-Hari yang indah yah
+Hari yang indah yah, yuk ngopi 
